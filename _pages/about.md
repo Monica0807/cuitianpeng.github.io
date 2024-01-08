@@ -24,11 +24,12 @@ Xu Qi, Hui Wei, Ningyuan Zhu, Cuitian Peng, Yuanwei Zhang, RouxiChen, Junpu Mei,
 
 Awards and Experience
 ======
-1. Participant of OptoRevolution: Exploring the Frontiers of Physiology with Light, 2023 Ø Member of the Organizing Committee of the International Conference on Genomics (ICG), 2022
-2. 1st Prize, The First Guangdong Province Undergraduate Animal Production College Student Innovation 
+1. Participant of OptoRevolution: Exploring the Frontiers of Physiology with Light, 2023
+2. Member of the Organizing Committee of the International Conference on Genomics (ICG), 2022
+3. 1st Prize, The First Guangdong Province Undergraduate Animal Production College Student Innovation 
 and Design Competition, 2021
-3. Excellent Student Cadre of Zhongkai University of Agriculture and Engineering, 2020
-4. Outstanding Work Award, The 2nd Guangdong-Hong Kong-Macao Greater Bay Area University Student 
-5. Art Festival - University Student Art Achievements Exhibition
-6. National 2nd Place, National College Student Financial Elite Challenge Cup
-7. Obtained Level 13 Chinese Dance from Beijing Dance Academy
+4. Excellent Student Cadre of Zhongkai University of Agriculture and Engineering, 2020
+5. Outstanding Work Award, The 2nd Guangdong-Hong Kong-Macao Greater Bay Area University Student 
+6. Art Festival - University Student Art Achievements Exhibition
+7. National 2nd Place, National College Student Financial Elite Challenge Cup
+8. Obtained Level 13 Chinese Dance from Beijing Dance Academy
