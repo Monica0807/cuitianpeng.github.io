@@ -14,13 +14,11 @@ Email: pengcuitian(at)mails.ucas.ac.cn
 Selected Publications
 ======
 Journal papers
-1.Effects of resveratrol on antioxidant capacity and apoptosis of duck liver under acute heat stress conditions[J]. Acta Veterinaria et Zootechinca Sinica,2023,54(01):239-251.
-Wanting Zhou, Chen Yang, Cuitian Peng, Xinliang Fu, Zhuohua Zhong
-doi: 10.11843/j.issn.0366-6964.2023.01.022
+1.ZHOU Wanting, YANG Chen, PENG Cuitian, FU Xinliang, ZHONG Zhuohua, XU Danning, HUANG Yunmao, TIAN Yunbo, LIU Wenjun. Effects of Resveratrol on Anti-oxidation and Anti-apoptosis of Hepatocytes of Ducks on Exposure to Acute Heat Stress[J]. Acta Veterinaria et Zootechnica Sinica, 2023, 54(1): 239-251.
 
 Patent
 1.A Method for Freezing and Embedding Brain Tissue.(2023113639544)
-Xu Qi, Hui Wei, Ningyuan Zhu, Cuitian Peng, Yuanwei Zhang, RouxiChen, Junpu Mei, Xiaodong Fang
+QiXu, HuiWei, NingyuanZhu, CuitianPeng, YuanweiZhang, RouxiChen, JunpuMei, XiaodongFang
 
 Awards and Experience
 ======
